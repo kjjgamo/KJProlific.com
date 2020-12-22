@@ -1,1 +1,0 @@
-# kjjgamo.github.io
